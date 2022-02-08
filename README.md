@@ -7,3 +7,5 @@ I started building websites as a freelancer at the age of 15 in a small town of 
 On account of reading one too many books I have come to the realization that my lifestyle of constantly pushing myself, barely getting enough sleep, having outside food is probably not healthy 🤯. I have been relentless in my work and have not lived a standard life that most kids get to. I have skipped so many steps of development that I now have to go back and relearn them all.
 
 I feel like its a terrible thing to be working for 10 years just to be burnt out. So in this jouney, I am gonna explore things that I love, build up a career and then a company from scratch, while trying to speed run into a burnout.
+
+You can follow the journey on https://listed.to/authors/16359/
